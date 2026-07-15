@@ -1,6 +1,6 @@
 👋 Hi, I’m Sudesh,
 
-I’m interested in Instruciton/Data(AI/ML/DL) driven development in the field of Environment, Healthcare, Fintech, Research and Development
+I’m interested in Instruciton and/or Data(AI/ML/DL) driven development in the field of Environment, Healthcare, Fintech, Research and Development
 
 Reach me : sudesh.contact@gmail.com 
 
